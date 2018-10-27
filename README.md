@@ -1,1 +1,1 @@
-FarBeyondAverage Software Original Website
+FarBeyondAverage Software Website
